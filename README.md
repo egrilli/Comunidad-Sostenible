@@ -1,1 +1,1 @@
-# Comunidadsostenible
+# Comunidad sostenible
